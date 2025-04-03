@@ -11,10 +11,21 @@
 
 ![Cookie0593-eat](https://github.com/user-attachments/assets/09628da0-a69e-49cd-8a01-bec1ef457186)
 
-before you int: I am quite of a sensitive person with a rude-offensive personality but soft hearted mf. i am often very rude(depending on some people i am comfortable with), and if i ever hurt your feeling i am sincerely apologize. i have a fish memory sometimes, pls be patient with me! adhd, ambiverted. i am a heavy lover for crémé brúléé cookie, so if you feel uncomfortable hearing me yap about him a lot, do tell me and I'll stop. 
+before you int: I am quite of a sensitive person with a rude-offensive personality but soft hearted mf. i am often very rude(depending on some people i am comfortable with), and if i ever hurt your feeling i am sincerely apologize. i have a fish memory sometimes, pls be patient with me! adhd, ambiverted. i am a heavy lover for crémé brúléé cookie, so if you feel uncomfortable hearing me yap about him a lot, do tell me and I'll stop. I can shift personality, note this as well.
 
 ![Cookie0593-idle_back](https://github.com/user-attachments/assets/4251bdc0-5125-45da-a775-fb309d7c2c7c)
 
 
 • dni list : basic criteria, skin copiers (learn yourself. well, at least ask me for inspiration, or other people as well. it is not cool to copy someone's effort), homophobic, transphobic, ped-phile, some proships, illegal ships/srs.
+
+c+h/cuddles + hide always open to everyone!! pls make yourself comfortable as well. 
+
+status:
+away: mostly offtab, mainly used almost for everything
+busy: afk, mostly no response. so perhaps you should whisper to interact after I got back
+
+IMPORTANT NOTE: I have MULTIPLE OF SHADES/STYLE. pls do not assume I steal, and I will ask the person I wanted to ask about how they design their characters! some of them perhaps my friends' shadings, and my shades and style mixes as well. ask first though!
+
+![Cookie0593s01-battle_idle](https://github.com/user-attachments/assets/5fbff4a9-8709-4fe7-8904-2cee470f520b)
+
 
