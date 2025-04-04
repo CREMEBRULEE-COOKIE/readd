@@ -3,7 +3,7 @@
  • Cremebruleese, rationex, 
  purerecluse, these three! i am socially awkward when talking,but trust, I am a very friendly person once I talk, that is when depending on mood as well. 
 
- "" a pianist who show and all ", immature critic."
+ " " a pianist who show and all ", immature critic."
 
  ![Cookie0593-skill2](https://github.com/user-attachments/assets/fb071471-bbe7-4ff2-a0c8-5e9eb23dddc5)
 
@@ -11,7 +11,7 @@
 
 ![Cookie0593-eat](https://github.com/user-attachments/assets/09628da0-a69e-49cd-8a01-bec1ef457186)
 
-before you int: I am quite of a sensitive person with a rude-offensive personality but soft hearted mf. i am often very rude(depending on some people i am comfortable with), and if i ever hurt your feeling i am sincerely apologize. i have a fish memory sometimes, pls be patient with me! adhd, ambiverted. i am a heavy lover for crémé brúléé cookie, so if you feel uncomfortable hearing me yap about him a lot, do tell me and I'll stop. I can shift personality, note this as well.
+before you int: I am quite of a sensitive person with a rude-offensive personality but soft hearted mf. i am often very rude(depending on some people i am comfortable with), i am often blunt about my words, and if i ever hurt your feeling i am sincerely apologize. i have a fish memory sometimes, pls be patient with me! adhd, ambiverted. i am a heavy lover for crémé brûlée cookie, so if you feel uncomfortable hearing me yap about him a lot, do tell me and I'll stop. I can shift personality, note this as well.
 
 ![Cookie0593-idle_back](https://github.com/user-attachments/assets/4251bdc0-5125-45da-a775-fb309d7c2c7c)
 
