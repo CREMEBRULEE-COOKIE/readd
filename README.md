@@ -26,6 +26,9 @@ busy: afk, mostly no response. so perhaps you should whisper to interact after I
 
 IMPORTANT NOTE: I have MULTIPLE OF SHADES/STYLE. pls do not assume I steal, and I will ask the person I wanted to ask about how they design their characters! some of them perhaps my friends' shadings, and my shades and style mixes as well. ask first though!
 
-![Cookie0593s01-battle_idle](https://github.com/user-attachments/assets/5fbff4a9-8709-4fe7-8904-2cee470f520b)
+![Cookie0593s01-battle_idle](https://github.com/user-attachments/assets/5fbff4a9-8709-4fe7-8904-2cee470f520b)![Cookie0593_loading](https://github.com/user-attachments/assets/e06a84bb-bb2c-4eb8-b617-cfa3ac1ef4e7)
+
+
+
 
 
